@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @isnrdra
 - 👀 I’m interested in nothing
-- 🌱 I’m currently learning how to live without you
+- 🌱 I’m currently learning nothing
 - 📫 How to reach me : you can't reach me
 
 <!---
